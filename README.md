@@ -1,1 +1,1 @@
-# dekopinda-pasaman-barat
+# dekopinda-karanganyar
